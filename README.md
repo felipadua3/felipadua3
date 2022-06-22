@@ -13,7 +13,7 @@
 * #### M.Sc in Electrical Engineering - Electromagnetism and Eletromagnetic Systems (2019)
   UFSC - Universidade Federal de Santa Catarina
 
-* ### B.Sc. in Electrical Engineering (2017)
+* #### B.Sc. in Electrical Engineering (2017)
   UFPI - Universidade Federal do Piauí
 
 📫 Contact:
